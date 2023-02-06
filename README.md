@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **ajebua@gmail.com**
 
-- ⚡ Fun fact **Leadership and Teaching**
+- ⚡ Fun fact **programming and design**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
